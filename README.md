@@ -16,7 +16,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ( IF I DO NOT RESPOND I AM MOST LIKELY AFK )  .ᐟ.ᐟ.ᐟ◞ ›
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤ![image alt]()
+ㅤㅤ![image alt](https://github.com/fartwizard567/fartwizard567/blob/main/skwisgaar3.jpg?raw=true)
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
