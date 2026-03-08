@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=moxxarellaa&label=hai&style=plastic&color=yellow)  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
+![]([https://komarev.com/ghpvc/?username=moxxarellaa&label=hai&style=plastic&color=yellow](https://github.com/fartwizard567/fartwizard567/blob/main/dethkloknlinky.webp?raw=true))  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 
 
 
