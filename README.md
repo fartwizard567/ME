@@ -13,5 +13,13 @@
 ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 ㅤㅤㅤㅤㅤㅤㅤ![](https://github.com/fartwizard567/fartwizard567/blob/main/pickle%20thoeinw%20up.webp?raw=true)
 
-
-WIPWIPWIPWIP
+![](https://github.com/fartwizard567/fartwizard567/blob/main/idocoke.png?raw=true)
+![](https://github.com/fartwizard567/fartwizard567/blob/main/releasethekitties.webp?raw=true)
+![](https://github.com/fartwizard567/fartwizard567/blob/main/nickles.webp?raw=true)
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
