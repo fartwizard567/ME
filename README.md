@@ -1,6 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=moxxarellaa&label=meow&style=plastic&color=red)   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀
-![](https://64.media.tumblr.com/c8c4ccf376542420bdbfb3b2e3155479/e978d4719882ada0-c7/s540x810/dbc1fca63fabf1ff63ccbc01cae9704c030d9072.pnj) ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
+![](https://komarev.com/ghpvc/?username=moxxarellaa&label=meow&style=plastic&color=red)   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://github.com/fartwizard567/fartwizard567/blob/main/dethkloknlinky.webp?raw=true)
